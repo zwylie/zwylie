@@ -2,6 +2,6 @@
 - I’m interested in making people happy forever.
 - I’m a college graduate with a BS in CS.
 - I’m looking to collaborate on anything I'm able to.
-- How to reach me: zachwylie9@gmail.com or umean2me@techhub.social on Mastodon
+- How to reach me: zachwylie9@gmail.com or [umean2me@techhub.social](https://techhub.social/@umean2me) on Mastodon
 - Pronouns: He/Him
 - Fun fact: I like to watch movies and play board games.
