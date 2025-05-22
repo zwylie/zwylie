@@ -1,4 +1,4 @@
-- Hi, I’m @zwylie
+- Hi, I’m @zwylie, also @kidzizzle on GitHub.
 - I’m interested in making people happy forever.
 - I’m a college graduate with a BS in CS.
 - I’m looking to collaborate on anything I'm able to.
